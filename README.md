@@ -2,7 +2,7 @@
 
 ### Hi there, I'm Can. 
 
-## R&D Software Developer | Podcaster
+## R&D Software Developer
 
 
 ### Reach out to me
